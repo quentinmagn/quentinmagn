@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @quentinmagn
+- 👀 I’m interested in design
+- 🌱 I’m currently learning ux and ui
+- 💞️ I’m looking to collaborate on brand identity
